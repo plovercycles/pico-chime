@@ -41,4 +41,4 @@ https://amzn.to/4h1SKkW
 ジャンパーワイヤー　¥499
 https://amzn.to/4cmQpOP
 
-https://gemini.google.com/app/927fa69863124bdc
+https://claude.ai/chat/53431484-3c6a-4f59-a09a-3fd42599bac9
